@@ -9,7 +9,3 @@ Nikhiljanathiya/Nikhiljanathiya is a ✨ special ✨ repository because its `REA
 You can click the Preview link to take a look at your changes.
 --->
 
-[Hii]
-
-[Malika how are you are fine and your choice is good 😊
-Malika your choice is good are you very happy malika
